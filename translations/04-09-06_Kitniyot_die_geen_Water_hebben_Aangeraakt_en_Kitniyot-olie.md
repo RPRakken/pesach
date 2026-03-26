@@ -1,0 +1,11 @@
+# 06. Kitniyot die geen Water hebben Aangeraakt en Kitniyot-olie
+
+We zijn niet strenger met **Kitniyot** dan we zijn met de vijf graansoorten, dus alles wat acceptabel is met betrekking tot deze granen is ook koosjer voor **Kitniyot**. Dus **Kitniyot** die niet in contact zijn gekomen met water, of die wel in contact zijn gekomen met water maar niet langer dan 18 minuten hebben gestaan voordat ze werden gekookt (zoals **Matze**), mogen worden gegeten. Sommige **Poskim** zijn in dit opzicht strikt, maar de meeste zijn coulant.
+
+De **Poskim** zijn het oneens over oliën en sterke dranken gemaakt van **Kitniyot**. De coulante opvatting is dat het **Kitniyot**-verbod niet van toepassing is op de olie die eruit is gewonnen, terwijl volgens de strikte opvatting **Kitniyot**-olie dezelfde status heeft als **Kitniyot** die volgens het gebruik niet mogen worden gegeten. Er is een tussenpositie die stelt dat als de **Kitniyot** in water zijn gespoeld (bijvoorbeeld als onderdeel van het moutproces), ze verboden worden, en de olie die eruit is gewonnen ook verboden is. Als ze echter worden gemalen en tot olie worden verwerkt zonder te zijn bevochtigd, zijn ze toegestaan.
+
+Sojaboon-, katoenzaad- en koolzaadolie (**Canola**) zijn niet inbegrepen in het verbod. Velen zijn strikt met betrekking tot soja- en koolzaadolie, maar wie coulant wil zijn, mag dat zijn. Het wijdverbreide gebruik met betrekking tot katoenzaadolie is om coulant te zijn.
+
+Lecithine gewonnen uit koolzaad en toegevoegd aan chocolade is niet inbegrepen in het **Kitniyot**-verbod, hoewel sommigen strikt zijn.
+
+Chocolade en snoep die **Kitniyot** bevatten die **batel be-rov** (nietig in de meerderheid) zijn, zelfs als ze gelabeld zijn als "Alleen koosjer voor Pesach voor degenen die **Kitniyot** eten," mogen technisch gezien zelfs gegeten worden door degenen die geen **Kitniyot** eten, omdat de **Kitniyot** in deze producten vóór Pesach zijn toegevoegd en **batel be-rov** zijn. Bovendien bevatten deze producten over het algemeen **Kitniyot**-oliën, die volgens verschillende vooraanstaande **Poskim** niet inbegrepen zijn in het gebruik om **Kitniyot** te verbieden. In de praktijk echter, aangezien veel mensen in dit opzicht strikt zijn, labelen kasjroet-instanties ze als koosjer voor Pesach alleen voor degenen die **Kitniyot** eten.

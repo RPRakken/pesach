@@ -1,0 +1,23 @@
+# 10. Diverse Andere Kelim
+
+Zilveren bekers: Het gebruik is om *le-khat-chila* **hagala** uit te voeren op zilveren bekers die gebruikt worden voor kiddoesj-wijn, omdat er soms **Chametz**-kruimels in de beker vallen en gedurende 24 uur in de wijn weken, en soms weken ze gedurende 18 minuten in whisky (hierboven, 10:13). Omdat dit een verregaande bezorgdheid is, mag men indien nodig volstaan met alleen afspoelen, in overeenstemming met hun meerderheidsgebruik.
+
+Het gebruik is om **hagala** uit te voeren op elektrische waterreservoirs (zoals die gebruikt worden op Sjabbat) en waterkokers, omdat er **Chametz**-kruimels in gevallen kunnen zijn. **Hagala** wordt gedaan door het apparaat met zoveel mogelijk water te vullen, het water aan de kook te brengen op dezelfde manier waarop het water het hele jaar door wordt gekookt, en dan wat water uit de kraan of tuit te laten lopen waardoor het water wordt afgegeven. Vóór **hagala** is het het beste om de kalkaanslag die zich binnenin heeft opgehoopt te verwijderen. Wanneer het deksel van een waterreservoir van metaal is en men er regelmatig challah-broden op plaatst om ze te verwarmen vóór een Sjabbat-maaltijd, moet er **hagala** in kokend water worden uitgevoerd op het deksel. [9]
+
+Thermosfles: Na goed schoonmaken wordt **hagala** in kokend water uitgevoerd. Het is ook mogelijk om deze te kasjeren door er kokend water in te gieten en op de opening ervan.
+
+Pop-up broodroosters en tosti-ijzers vereisen zware **liboen**, en aangezien dit ze waarschijnlijk zal beschadigen, moeten ze niet worden gekasjerd. (Hoewel we hierboven, 10:5, hebben uitgelegd dat we in tijden van nood coulant zijn en **liboen** toestaan op dezelfde temperatuur als het gebruik, is er, aangezien deze apparaten moeilijk schoon te maken zijn, geen ruimte voor coulance.)
+
+Een blender die gebruikt wordt om voedsel te raspen, hakken en snijden – als deze met koud voedsel is gebruikt, wordt deze gekasjerd door middel van afspoelen. Als er groeven zijn waarin voedseldeeltjes kunnen achterblijven, moet het apparaat met zeep worden schoongemaakt totdat het duidelijk is dat eventuele resterende voedselresten ongeschikt zijn voor consumptie door een hond. Als het apparaat met heet voedsel is gebruikt en men niet voorzichtig is geweest met het gebruik ervan met **Chametz** gedurende het jaar, moeten alle delen die heet voedsel hebben aangeraakt, worden gekasjerd door middel van **hagala**. [10]
+
+Kunstgebit: Dit moet grondig worden schoongemaakt vóór het ingaan van het **Chametz**-verbod. Het hoeft geen **hagala** te ondergaan, omdat mensen normaal gesproken geen kokend voedsel of vloeistoffen in hun mond nemen; net zoals ze voor zowel vlees als zuivel worden gebruikt wanneer ze tussendoor worden schoongemaakt, zo kunnen ze ook op Pesach worden gebruikt.
+
+***
+
+**Voetnoten:**
+
+[9]. Deze zaak is onduidelijk. Aangezien er geen vloeistof aanwezig is en de challah de temperatuur van **yad soledet** bereikte, zou wellicht overwogen moeten worden dat het de smaak van challah heeft geabsorbeerd alsof het door middel van direct vuur was, wat betekent dat het deksel **liboen** nodig zou hebben, en regelmatige **liboen** zal het deksel beschadigen. Het gebruik is om coulant te zijn omdat we de mening meewegen dat **Chametz** gedurende het jaar de status van "**heteira**" heeft en dus **hagala** effectief is waar normaal gesproken **liboen** vereist zou zijn (zoals hierboven uitgelegd, 10:3).
+
+[10]. Als een blender is gebruikt met koud, scherp voedsel (dat zo scherp is dat het niet alleen gegeten kan worden), en men niet voorzichtig is geweest met het gebruik ervan met **Chametz** gedurende het jaar, moet deze *le-khat-chila* worden gekasjerd door middel van **hagala**, aangezien we bezorgd zijn dat de combinatie van de sterke schurende werking met de scherpte van het voedsel ervoor heeft gezorgd dat de smaak van **Chametz** in het apparaat is geabsorbeerd (SA, YD 96:1; **Kaf Ha-Chayim** 1). Als de **kelim** van metaal of glas zijn gemaakt, of niet zijn gebruikt met heet voedsel, dan kunnen ze, zelfs als ze met scherp voedsel zijn gebruikt, worden gekasjerd door ze af te spoelen. (We hebben in **Peninei Halakha: Kasjroet** 32:12, noot 15, uitgelegd dat de speciale status van scherp voedsel onderwerp is van onenigheid onder **Risjonim** en **Acharoniem**; aangezien onze glazen en metalen **kelim** geen smaak absorberen of afgeven, volgen we de coulante opvatting en behandelen we scherp voedsel zoals we alle andere voedingsmiddelen behandelen.)
+
+Een koffiemachine: Men maakt deze schoon en verhit water tot de hoogste temperatuur op de normale manier.

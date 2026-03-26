@@ -1,0 +1,9 @@
+# 04. Definiëring van het Rijzen van Deeg
+
+Zoals we hebben geleerd, is het verschil tussen brood en matze dat het deeg dat voor het maken van brood wordt gebruikt, een rijsproces heeft ondergaan dat het resultaat is van de fermentatie van ingrediënten in het meel die in contact zijn gekomen met water. Om het rijsproces te versterken, mengen bakkers gewoonlijk **Se'or** door het deeg, waardoor het deeg grondiger en sneller fermenteert. Maar zelfs zonder rijsmiddel zou het deeg, als het zonder kneden wordt gelaten, fermenteren en rijzen. Daarom moet men bij het bereiden van matzot snel werken om ervoor te zorgen dat het rijsproces in het deeg niet begint.
+
+Zolang het deeg in beweging is en wordt gekneed, wordt het geen **Chametz**. Zelfs als het kneden een hele dag zou doorgaan, zou het deeg geen **Chametz** worden, aangezien kneden het rijsproces stopt. Als het deeg echter 18 minuten bewegingloos blijft liggen, zal het rijsproces beginnen en zullen alle verboden met betrekking tot **Chametz** erop van toepassing zijn.
+
+Dit geldt voor normale omstandigheden, maar waar het warmer is, wordt het rijsproces versneld en wordt het deeg in zelfs minder dan 18 minuten **Chametz**.
+
+Scheuren die in het deeg verschijnen, zijn een fysieke aanwijzing dat het deeg **Chametz** is geworden. Zelfs als er nog geen 18 minuten zonder kneden zijn verstreken, is het deeg, zodra er scheuren in zijn gevormd, zeker **Chametz** geworden; blijkbaar was het warm, zodat het minder tijd kostte om **Chametz** te worden, of was het kneden onvoldoende en zijn bepaalde delen van het deeg verwaarloosd, waardoor die plekken **Chametz** zijn geworden. Zelfs als er maar heel weinig scheuren zijn, en ze alleen in een deel van het deeg verschenen, is het hele deeg **Chametz**. Als er geen scheuren verschenen maar het deeg bleek werd, is het **Chametz Noeksje** (verharde **Chametz**; zie volgende sectie), wat rabbinaal verboden is (SA 459:2).

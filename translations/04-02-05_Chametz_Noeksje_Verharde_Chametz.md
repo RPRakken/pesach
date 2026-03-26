@@ -1,0 +1,7 @@
+# 05. Chametz Noeksje (Verharde Chametz)
+
+De **Chametz** die de Thora verbood, is **Chametz Gamoer** (volledige **Chametz**), wat betekent dat het rijsproces is voltooid en het voedsel eetbaar is geworden. Maar als de fermentatie was begonnen maar niet was afgerond, en als het voedsel in dringende omstandigheden eetbaar is, dan is het "**Chametz Noeksje**". Volgens de meeste **poskim** (halachische beslissers) is **Chametz Noeksje** niet verboden door de Thora, maar hebben de Wijzen het verboden zodat mensen zich niet zouden vergissen en echte **Chametz** zouden gaan eten of houden.
+
+Een voorbeeld van **Chametz Noeksje** is de lijm die schrijvers vroeger maakten van meel en water om papier te plakken. Omdat het rijsproces nooit werd voltooid en het nauwelijks eetbaar is, is het **Chametz Noeksje**, en de Wijzen verboden het eten of het houden ervan op Pesach (MB 442:2). Als de vorm ervan is veranderd, zoals wanneer de lijm wordt gebruikt om vellen papier aan elkaar te plakken, is men toegestaan het te houden. Anderen zijn strenger en stellen dat als de lijm tussen de pagina's uitsteekt, het wordt beschouwd alsof het dezelfde vorm heeft behouden en het verboden is om het op Pesach te houden (SA en Rema 242:3).
+
+Op dezelfde manier is deeg dat begon te fermenteren tot het punt dat het oppervlak bleek werd, maar het oppervlak niet gebarsten was zoals bij echt rijzen, **Chametz Noeksje**, en is het volgens de rabbijnse wet verboden om het te eten of te houden op Pesach (SA 459:2).

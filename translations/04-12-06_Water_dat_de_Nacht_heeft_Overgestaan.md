@@ -1,0 +1,12 @@
+# 06. Water dat de Nacht heeft Overgestaan ("Majiem Sje-lanoe")
+
+De Wijzen verboden het kneden van deeg voor Pesach-**Matzot** met lauw water, omdat warmte het rijsproces versnelt. Tenzij de werkers bijzonder snel zijn met kneden en bakken, bestaat er bezorgdheid dat het **Chametz** wordt. De Wijzen verboden het kneden van het deeg zelfs met gewoon koud water uit regenbakken en bronnen, uit vrees dat de omringende grond, die de hitte van de zon had geabsorbeerd, op haar beurt het water had verwarmd. Daarom stelden zij als eis dat het water vóór het vallen van de avond geput moest worden en gedurende de nacht op een koele plaats bewaard moest worden. Dergelijk water wordt "**majiem sje-lanoe**" genoemd. Dit water wordt gebruikt om **Matzot** voor Pesach te bereiden (SA 495:1 en 3). [6]
+
+Er ontstond echter een probleem in landen met een warm klimaat. Ongeacht waar het water gedurende de nacht werd bewaard, het zou een beetje opwarmen. Integendeel, als het water in de bronnen was gelaten, zou het koeler zijn gebleven! Niettemin is de halacha dat het water buiten moet blijven staan, zoals de Wijzen hebben verordend. Als het water als gevolg daarvan een beetje opwarmt, moet het worden gekoeld (Mikra’ei Kodesh 2:7).
+
+Sommigen houden vol dat men kraanwater de nacht moet laten overstaan voor het bakken van de **Matzot**, aangezien het water uit een open reservoir zou kunnen komen en door de zon verwarmd zou kunnen zijn. Bovendien bestaat de bezorgdheid dat de chloor die door het water is gemengd het rijsproces zal versnellen (**She’arim Metzuyanim Be-halakha** 109:3). In de praktijk is deze mogelijkheid geen punt van zorg, en slechts enkele nauwgezette mensen die handgemaakte **Matzot** maken, zijn strikt in het putten van water uit putten of bronnen. In fabrieken voor machinale **Matze** nemen ze gewoon kraanwater uit het gemeentelijke systeem, filteren het grondig en laten het de hele nacht op een koele plaats staan (R. Tzvi Yehuda Kook zou op soortgelijke wijze "**majiem sje-lanoe**" van kraanwater bereiden).
+
+***
+
+**Voetnoot:**
+[6]. Iemand die geen "**majiem sje-lanoe**" heeft voorbereid, zou geen **Matze** moeten bakken met gewoon water. In plaats daarvan zou hij voor de rest van de feestdag moeten volstaan met fruit, groenten en ander voedsel. Echter, als hij anders geen **Kezajit** aan **Matze** zal hebben om het Thora-gebod op de Sederavond te vervullen, mag hij **Matze** bakken met gewoon koud water, zodat hij deze mitswa niet verwaarloost (MB 455:36).

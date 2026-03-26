@@ -1,0 +1,11 @@
+# 06. Het Eten en Houden van Chametz-mengsels op Pesach
+
+De Thora-wet met betrekking tot een **Chametz**-mengsel is ingewikkeld en onderhevig aan geschillen tussen de Wijzen van de Misjna en Talmoed. We zullen de wetten hier beknopt samenvatten.
+
+De Thora verklaart dat wie op Pesach een **kezajit** (olijfgrootte) aan **Chametz** eet, **Karet** oploopt. Als **Chametz** vermengd was met ander voedsel zodanig dat er een **kezajit** aan **Chametz** aanwezig was binnen een **sji'oer achilat pras** (de omvang van drie of vier eieren), en men at een **sji'oer pras** van het mengsel, dan loopt men volgens veel **Risjonim** **Karet** op, terwijl anderen menen dat de straf slechts **malkot** (zweepslagen) is.
+
+Als het mengsel geen **kezajit** aan **Chametz** bevat binnen een **sji'oer achilat pras**, en men at een hoeveelheid van het mengsel die een **kezajit** aan **Chametz** bevat: volgens sommigen loopt men dan **malkot** op, maar volgens anderen heeft men, zolang het mengsel de smaak van **Chametz** heeft, een Thora-verbod overtreden maar krijgt men geen zweepslagen. Volgens de Rambam heeft men in dit geval slechts een rabbinaal verbod overtreden.
+
+Als **Chametz** vermengd was met voedsel van dezelfde soort – bijvoorbeeld gerezen meel met ongerezen meel – wordt het meel op Thora-niveau nietig verklaard door de meerderheid (**batel be-rov**) omdat ze hetzelfde smaken, maar is het rabbinaal nog steeds verboden (SA 447:1).
+
+Wat betreft het verbod op het houden van **Chametz** op Pesach: als een **kezajit** aan **Chametz** vermengd raakt met ander voedsel, overtreedt men **Bal Jera'eh** en **Bal Jimatzei** zolang het mengsel minder dan zestig keer de hoeveelheid van de **Chametz** is. Als het mengsel meer dan zestig keer de hoeveelheid van de **Chametz** is, is de **Chametz** op Thora-niveau **batel** en wordt er geen verbod overtreden. Evenzo, als de **Chametz** vermengd raakt met zijn eigen soort – bijvoorbeeld gerezen meel met ongerezen meel – en er is meer koosjer meel dan **Chametz**-meel, dan is de **Chametz** volgens de Thora-wet **batel** en wordt er geen verbod overtreden. Niettemin hebben de Wijzen ingesteld dat het mengsel moet worden geëlimineerd, opdat men het niet op Pesach eet.

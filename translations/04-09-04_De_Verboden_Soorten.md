@@ -1,0 +1,11 @@
+# 04. De Verboden Soorten
+
+De bekende voedingsmiddelen die onder dit gebruik vallen zijn: rijst, luzerne, erwten, gierst, sorghum, kikkererwten, fenegriekzaden, zonnebloempitten, mosterd, boekweit (**kusemet**, niet te verwarren met **kusmin** – spelt – wat een verboden graansoort is), komijn, wikke, cowpeas (oogbonen), soja, mungbonen, linzen, tuinbonen, lupinebonen, maanzaad, lijnzaad, peulvruchten, karwij, hennepzaad, gewone bonen (*Phaseolus vulgaris*), sesamzaad, lupinezaden, maïs, klaverzaad en de tamarindevrucht. Producten gemaakt van **Kitniyot** – bijvoorbeeld cornflakes, maïsmeel en rijstwafels – vallen ook onder het gebruik. Saffraan werd oorspronkelijk "karkom" genoemd in het Hebreeuws en is toegestaan, en kurkuma, het modern Hebreeuwse **karkom**, is ook toegestaan; maar als er bezorgdheid bestaat dat er tarwe door de saffraan is gemengd, is het verboden. Mosterd en lijnzaad zijn geen **Kitniyot**, maar het gebruik is om ze te verbieden omdat ze in peulen groeien zoals **Kitniyot**.
+
+Dille en koriander zijn geen **Kitniyot**, maar men moet ze goed onderzoeken omdat ze vaak tarwe bevatten.
+
+Er zijn verschillende gebruiken met betrekking tot pinda's. In Jeruzalem en veel andere plaatsen onthouden mensen zich van het eten ervan (**Mikra’ei Kodesh** 2:60), maar in Groot-Litouwen was het gebruikelijk om ze wel te eten. Iemand die niet weet of zijn familie hierin strikt was, mag ze eten (**Igrot Mosje** OCh 3:63).
+
+Aardappelmeel is toegestaan op Pesach. Er is geen bewering dat op basis van het gebruikelijke verbod op **Kitniyot** alles waarvan meel gemaakt kan worden verboden zou moeten zijn. In plaats daarvan omvat het gebruik alleen datgene wat de grote Asjkenazische **Risjonim** verboden hebben. Aangezien aardappelen toen nog niet in Europa waren aangekomen, vallen ze niet onder het verbod (ibid.).
+
+Wat betreft quinoa: sommigen zijn strikt vanwege de gelijkenis met sommige soorten **Kitniyot**. Anderen zijn coulant aangezien het gebruikelijke verbod niet van toepassing is op quinoa, dat pas onlangs in ons dieet is opgenomen. Bovendien zijn de zaden veel kleiner dan die van graansoorten, waardoor ze gemakkelijk te onderscheiden zijn. In de praktijk is de coulante opvatting de primaire, zolang men de quinoa grondig inspecteert.

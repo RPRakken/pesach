@@ -1,0 +1,17 @@
+# 06. De Eettafel
+
+Tafels in het verleden waren gemaakt van dik, massief hout. Mensen plaatsten er gloeiend hete gebakjes en kokende potten op, waardoor er af en toe **Chametz**-gerechten op gemorst werden. Daarom werd het de gewoonte om tafels te kasjeren door er kokend water over te gieten (SA 451:20), en sommigen waren nog strikter en goten kokend water op een gloeiend hete steen op de tafel (**Mahari Weil**). De tafels van tegenwoordig zijn echter delicater en breekbaarder, en zouden beschadigd, vervormd of ontsierd worden door kokend water. Omdat de tafels zo delicaat zijn, plaatsen mensen er geen kokende potten of gloeiend hete gebakjes rechtstreeks op.
+
+Daarom moet men de tafel goed schoonmaken, aangezien dit de tafel kasjert volgens het meerderheidsgebruik. Maar aangezien er soms hete **Chametz**-vloeistoffen op de tafel kunnen spatten en mensen er soms hete gebakjes op plaatsen, is het gepast om ervoor te zorgen niet aan de tafel te eten zonder een tafelkleed dat als barrière dient tussen de tafel en het voedsel.
+
+Sommigen zijn nauwgezet om nylon of plakfolie te bevestigen, uit vrees dat het tafelkleed dat op de tafel is geplaatst zal verschuiven, maar het bevestigen ervan creëert een permanente barrière waaronder men het tafelkleed plaatst. Als het een tafel is waarop men af en toe deeg kneedt, moet er een permanente barrière op worden geplaatst of bevestigd. [6]
+
+Voor een tafel waarop niemand heet **Chametz**-voedsel plaatst en niemand deeg kneedt, is het voldoende om deze goed schoon te maken en is er geen noodzaak om deze te bedekken.
+
+Men mag een tafelkleed waarop **Chametz** is gegeten kasjeren door het in een wasmachine te wassen. Als een tafelkleed niet gewassen kan worden, moet men het schoonmaken en in een afgesloten kast bewaren bij het **Chametz**-gerei.
+
+***
+
+**Voetnoot:**
+
+[6]. SA 451:20 stelt dat het gebruik is om kokend water over de tafels te gieten, aangezien er soms **Chametz**-soep op de tafel morste (ook al is het meeste gebruik koud, en is technisch gezien schoonmaken voldoende). Volgens Responsa **Mahari Weil** §193, aangezien er soms hete quiches op de tafel worden geplaatst, absorbeert deze smaak op het niveau van **kli rishon**, dus zou men deze moeten kasjeren met een gloeiend hete steen. Verschillende **Acharoniem** schreven dat men *le-khat-chila* dienovereenkomstig zou moeten handelen (**Eliyah Rabba**, **Pri Megadim**, MB 451:114). Mensen plaatsen echter geen kokende potten of gloeiend hete gebakjes rechtstreeks op hedendaagse tafels, die relatief breekbaar en delicaat zijn. Hooguit plaatsen we potten op een onderzetter, en af en toe morst er **Chametz**-voedsel daarvan op de tafel, of plaatsen we hete – maar niet gloeiend hete – gebakjes op de tafel, dus het gieten van kokend water kasjert de tafel effectief, zelfs tegen het intensere gebruik. Toch kan zelfs het gieten van kokend water de tafel ruïneren. Daarom is het gepast om er een barrière op te plaatsen. Als het een tafel is waarop men af en toe deeg kneedt, moet er een permanente barrière op worden bevestigd. Dit alles volgt de geaccepteerde opvatting (hierboven, 10:7) dat we ons *le-khat-chila* zorgen maken over het meest intense gebruik. Maar *be-di’avad*, wanneer nodig, zelfs als de tafel voor deeg werd gebruikt, zolang het oppervlak glad is en er geen bezorgdheid is dat er **Chametz** in kieren is blijven zitten, kan men volstaan met schoonmaken en afspoelen, in overeenstemming met het meeste gebruik. **Or Le-Tziyon** 3:10:10 accepteert dit *le-khat-chila*.

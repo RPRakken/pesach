@@ -1,0 +1,9 @@
+# 05. Maakt Chametz die een Vieze Smaak Geeft ("Noten Ta'am Li-fgam") een Mengsel Verboden?
+
+Er is een bekende regel dat iets dat een vieze of bedorven smaak afgeeft (**noten ta'am li-fgam**) een mengsel niet verboden maakt. Bijvoorbeeld, als niet-koosjer vlees in een pan met koosjer voedsel valt, en de hoeveelheid koosjer voedsel zestig keer groter is dan die van het niet-koosjere vlees, wordt de smaak van het niet-koosjere vlees nietig verklaard (**batel**) en is het toegestaan om het gekookte gerecht te eten. Als het koosjere voedsel niet zestig keer de hoeveelheid van het niet-koosjere vlees is, is de smaak merkbaar en is het gerecht verboden. Als de smaak van het niet-koosjere vlees echter vies (**pagoem**) is, aangezien het de smaak van het gerecht bederft, is het toegestaan om het te eten zolang het koosjere voedsel het merendeel van het mengsel vormt (SA YD 103:1).
+
+Hoe zit het met een **Chametz**-mengsel op Pesach? Sommigen zeggen dat het feit dat de Wijzen, vanwege de ernst van het **Chametz**-verbod, hebben ingesteld dat zelfs een druppel **Chametz** elk mengsel verboden maakt, aangeeft dat de zaak niet afhangt van de smaak die het aan het mengsel geeft. Daarom is het, zelfs wanneer het een vieze smaak bijdraagt, niet anders dan een druppel **Chametz** die het hele mengsel verboden maakt (Rasjbam, Rasjba).
+
+De mening van de meeste **Risjonim** is dat **Chametz** net als andere verboden voedingsmiddelen is, behalve met betrekking tot **bitul be-sjishim**. Dus in gevallen als **noten ta'am li-fgam**, waar andere verboden voedingsmiddelen een mengsel niet verboden zouden maken, maakt **Chametz** een mengsel ook niet verboden (Rabbeinoe Tam, Rosj).
+
+In de praktijk oordeelt SA 447:10 soepel, terwijl Rema schrijft dat in Asjkenazische gemeenschappen het gebruik is om de strenge uitspraak te volgen dat zelfs een druppel vies-smakende **Chametz** een heel mengsel verboden maakt.

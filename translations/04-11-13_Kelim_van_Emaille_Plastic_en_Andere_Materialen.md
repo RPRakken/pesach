@@ -1,0 +1,15 @@
+# 13. Kelim van Emaille, Plastic en Andere Materialen
+
+Emaille **kelim** zijn gemaakt van metaal en gecoat met een dunne laag emaille om esthetische redenen. De binnenkant van de pot is meestal wit geschilderd, terwijl de buitenkant versierd is met verschillende kleuren. Emaille is gemaakt van zand, net als glaswerk, maar het wordt anders vervaardigd. In de praktijk mag men **hagala** uitvoeren op emaille **kelim** zoals op alle andere metalen **kelim**. [13]
+
+Hetzelfde geldt voor alle soorten metalen, leer, hout en bot. Alleen aardewerk kan niet worden gekasjerd, omdat aardewerk vanwege zijn unieke samenstelling veel absorbeert en niet alles wat het absorbeert weer afgeeft.
+
+Plastic **kelim** die de smaak van kokend heet voedsel hebben geabsorbeerd, worden gekasjerd via **hagala** met kokend water, net als alle andere **kelim**. Soms raakt plastic echter bekrast, waardoor het moeilijk is om het goed schoon te maken. Daarom is de geaccepteerde aanbeveling om plastic babyflessen en fopspenen vóór Pesach te vervangen, omdat het moeilijk is om ze zo schoon te maken dat hun oorspronkelijke glans hersteld wordt. Niettemin kunnen ze in tijden van nood worden gekasjerd door middel van een goede schoonmaakbeurt en **hagala** of het gieten van kokend water uit een **kli rishon**. [14]
+
+***
+
+**Voetnoten:**
+
+[13]. Aanvankelijk waren **Poskim** onzeker over emaille omdat de ambachtslieden de samenstelling van emaille geheim hielden. Toen later bekend werd dat emaille op zandbasis is, ontstond er opnieuw onzekerheid of dergelijke **kelim** de status van aardewerk hebben. Responsa **Chatam Sofer** (YD 113) stelt dat emaille wordt gekasjerd via lichte **liboen**. R. Shlomo Kluger oordeelt strikt dat men emaille zelfs niet via **liboen** mag kasjeren, omdat het tijdens het proces beschadigd zou kunnen raken (**Toev Ta’am Va-da’at** 1:183). AHS YD 121:27 stelt dat het gekasjerd kan worden door drie keer **hagala** uit te voeren, vertrouwend op de visie van de Itur dat drievoudige **hagala** effectief is, zelfs voor aarden **kelim**, zodra er 24 uur zijn verstreken sinds hun gebruik met verboden voedsel. De geaccepteerde uitspraak is dat ze gekasjerd kunnen worden door middel van **hagala**, aangezien ze voornamelijk van metaal zijn en de emaille coating als glas is. Dit is de visie van de Aderet, en zo stellen R. Mordechai Eliyahu’s **Hilchot Chagim** 5:39 en **Chazon Ovadia**, Pesach, p. 157.
+
+[14]. **Igrot Mosje** (OCh 1:92) stelt dat men geen **hagala** zou moeten uitvoeren op **kelim** gemaakt van plastic of andere synthetische materialen die niet door de **Risjonim** zijn genoemd, aangezien dergelijke materialen als aardewerk zouden kunnen zijn, dat niet afgeeft wat het heeft geabsorbeerd. Dit is ook de visie van R. Yaakov Shaul Elyashar en **Lehorot Natan** 6:69. Niettemin zijn de meeste **Poskim** het erover eens dat plastic **kelim** gekasjerd kunnen worden door middel van **hagala**. Hiertoe behoren: Responsa **Chelkat Yaakov** 2:163; **Seridei Esj** 2:160; R. Levi Yitzchak Halperin; R. Mordechai Eliyahu, **Hilchot Chagim** 5:86; **Chazon Ovadia**, Pesach, p. 151; en **Or Le-Tziyon** 3:10:13.

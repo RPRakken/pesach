@@ -1,0 +1,14 @@
+# 13.08 Matze Bakken en het Reciteren van de Korban Pesach-dienst
+
+Sommigen verfraaien de **mitswa** door de **matzot** die voor de **Seder** gebruikt zullen worden na het middaguur op de 14e te bakken, de tijd waarop de **korban Pesach** (het paasoffer) geofferd zou worden. Velen doen dit niet omdat het arbeidsintensief is, en dit de tijd is waarin mensen gewoonlijk druk bezig zijn met het voorbereiden van het huis voor de **Seder**. Sommige **poskiem** zeggen dat de mogelijkheid dat het deeg **chametz** wordt het ook de voorkeur geeft om de **matze** van tevoren te bakken, omdat sommige autoriteiten van mening zijn dat op dit tijdstip van de dag zelfs een druppel **chametz** alles verboden maakt, terwijl als een druppel deeg **chametz** wordt vóór het middaguur, het **batel be-shisjim** (tenietgedaan in zestig delen) is en later niet zal “herontwaken” met het ingaan van **Pesach**. Inderdaad was het de gewoonte van Rav Kook om op **Erev Pesach** na het middaguur geen **matze** te bakken.
+
+Na het **mincha**-gebed op **Erev Pesach** reciteren mensen gewoonlijk de **Seder Korban Pesach**, een beschrijving van de procedure voor het brengen van het paasoffer, inclusief relevante bijbelverzen. De Wijzen leren dat na de verwoesting van de Tempel het reciteren en bestuderen van de offerprocedures wordt beschouwd als een vervanging voor de **korban** zelf.
+
+Maharal van Praag legt uit dat de betekenis van de **korban Pesach** ligt in de uitdrukking die het geeft aan de eenheid van de Schepper, en bijgevolg de eenheid van Israël, wiens doel het is om Zijn naam in de wereld te openbaren. Het wordt daarom gegeten in groepen (**chaboerot**), waarvan het lidmaatschap vooraf is bepaald, zodat de **korban** wordt geofferd door een groep mensen die zich voor dit doel hebben verenigd. Het is ook verboden om tijdens de **Seder** van de ene groep naar de andere te gaan, omdat dit de eenheid van de groep zou verstoren. Het offer wordt gegeten met **matze** en **maror** om de innerlijke eenheid uit te drukken van alle waarden waarnaar wordt verwezen door de **korban Pesach**, **matze** en **maror**. We zijn geboden om het paasoffer te roosteren, omdat roosteren het vlees stevig maakt en verenigt. Het is verboden om een van de botten ervan te breken, omdat breken een uitdrukking is van verdeeldheid.
+
+Wanneer de **korban Pesach** niet kan worden geofferd, wordt de eenheid van de Schepper niet geopenbaard in de wereld, en is het volk Israël verspreid en verdeeld. Moge het de wil van God zijn dat de Tempel spoedig in onze dagen wordt herbouwd, zodat we allen samen de **korban Pesach** kunnen offeren, als in de dagen van weleer.
+
+*O Allerzuiverste, Die in de hoge woont:*
+*Verhef de ontelbare vergadering van Uw gemeenschap*
+*Leid spoedig de stekken die U hebt geplant*
+*Verlost, naar Zion in vreugde!*

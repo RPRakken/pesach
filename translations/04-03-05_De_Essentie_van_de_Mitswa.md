@@ -1,0 +1,9 @@
+# 05. De Essentie van de Mitswa
+
+Een fundamentele vraag is gerezen over de essentie van de mitswa van het verwijderen van de **Chametz**: is de mitswa in wezen het actief elimineren van de **Chametz**, of is het belangrijkste principe dat er geen **Chametz** in het bezit van een Jood overblijft?
+
+Volgens de meeste **Risjonim** (Ramban, Maharik en anderen) is de mitswa primair dat iemands domein vrij is van **Chametz**. Wie **Chametz** heeft, moet dit opruimen, en wie geen **Chametz** in zijn bezit heeft, heeft de mitswa vervuld door geen **Chametz** in zijn domein te hebben.
+
+Sommige **Risjonim** (Tosafot, Ran) impliceren echter dat alleen iemand die **Chametz** heeft, verplicht wordt de mitswa te vervullen, en hij vervult deze door de **Chametz** uit zijn huis te verwijderen. Wie geen **Chametz** heeft, is vrijgesteld van de mitswa. Toch vinden we zelfs volgens deze benadering niet dat de **Risjonim** adviseerden om **Chametz** te verwerven om de mitswa van het verwijderen van de **Chametz** te kunnen vervullen. Niettemin zijn er **Acharonim** die schreven dat het passend is voor iemand die vóór Pesach geen **Chametz** in zijn bezit heeft, om verder te gaan dan de letter van de wet en wat **Chametz** te kopen, zodat hij de mitswa van het verwijderen van de **Chametz** kan vervullen volgens degenen die menen dat men actief **Chametz** moet verwijderen.
+
+In de praktijk zijn Joden een heilig volk en streven zij ernaar de mitswa te versterken door ervoor te zorgen dat zij op de 14e Nisan **Chametz** in hun bezit hebben, waarmee zij de mitswa van het elimineren van **Chametz** vervullen op een wijze die alle opvattingen bevredigt. Bovendien zijn zij zo nauwgezet dat zij de **Chametz** specifiek door verbranding verwijderen, want volgens veel **poskim** is verbranding de voorkeursmanier om de **Chametz** te vernietigen (zie 5:4).

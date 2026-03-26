@@ -1,0 +1,5 @@
+# 04. Een Warmhoudplaat ("Plata") en Barbecue Grills
+
+Een warmhoudplaat ("**plata**") is verboden op Pesach vanwege gebakken goederen die erop worden geplaatst en vanwege gekookt voedsel dat er soms op morst. Omdat deze via vuur heeft geabsorbeerd, moet deze worden gekasjerd via **liboen**. Echter, **liboen** zal de plaat beschadigen, en zoals we hebben geleerd, kunnen **kelim** die via vuur hebben geabsorbeerd, wanneer nodig, worden gekasjerd door ze te verhitten tot de temperatuur waarbij de absorptie plaatsvond (hierboven, 10:5 en 10:3). Daarom mag men een **plata** kasjeren door deze schoon te maken en gedurende een uur te verhitten. Degenen die strikt zijn, bedekken de plaat bovendien met aluminiumfolie om een barrière te creëren tussen de **plata** en de Pesach-potten.
+
+Een barbecue grill: Het frame van de grill en de roosters worden op dezelfde manier gekasjerd als waarop ze worden gebruikt, wat de intensiteit van zware **liboen** is. Als het een gasgrill is, wordt deze gekasjerd op de hoogste temperatuurstand; als het een houtskoolgrill is, wordt deze gekasjerd door de grootste hoeveelheid houtskool erin te doen die men gewoonlijk gebruikt.
